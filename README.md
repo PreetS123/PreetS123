@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **preetbhardwaj517@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1quVzPeNJ0aU5Ja0aGl0b2ISu94JDSBy5?usp=sharing]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Ww3F7Lce1hnVx8HcYJpqCr-o0oau_pVJ/view?usp=sharing]
 - 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
