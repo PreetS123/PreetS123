@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **preetijtsharma@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1quVzPeNJ0aU5Ja0aGl0b2ISu94JDSBy5?usp=sharing]
+- 📄 Know about my experiences [https://drive.google.com/drive/folders/1vB7HqhN47j-q_T3F6RPj3-1JffjUCC5I?usp=drive_link]
 - 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
