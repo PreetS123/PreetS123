@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=preets123&label=Profile%20views&color=0e75b6&style=flat" alt="preets123" /> </p>
 
-- 🌱 I’m currently working as a **Frontend Developer**
+- 🌱 I’m currently working as a **Software Developer**
 
 - 💬 Ask me about **HTML, CSS, JavaScript, React, React-native, Redux, Node.js, Express.js, and MongoDB**
 
